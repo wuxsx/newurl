@@ -1,3 +1,3 @@
 # newurl
 新網址
-11npy.com
+77npy.com
