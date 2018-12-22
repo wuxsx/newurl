@@ -1,3 +1,3 @@
 # newurl
 新網址
-88npy.com
+66npy.com
