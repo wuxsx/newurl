@@ -1,3 +1,3 @@
 # newurl
 新網址
-7npy.com
+55npy.com
