@@ -1,3 +1,3 @@
 # newurl
 新網址
-00npy.com
+0npy.com
