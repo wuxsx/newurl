@@ -1,3 +1,3 @@
 # newurl
 新網址
-npy06.com
+npy09.com
