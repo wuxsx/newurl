@@ -1,3 +1,3 @@
 # newurl
 新網址
-npy15.com
+npy05.com
