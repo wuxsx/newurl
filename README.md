@@ -1,3 +1,3 @@
 # newurl
 新網址
-npy1.com
+npy0.com
