@@ -1,3 +1,3 @@
 # newurl
 新網址
-npy18.com
+npy21.com
