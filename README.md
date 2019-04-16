@@ -1,3 +1,3 @@
 # newurl
-新網址
-npy31.com
+新网址
+npy32。com
