@@ -1,3 +1,3 @@
 # newurl
 新网址
-npy34.com
+npy35.com
