@@ -1,3 +1,3 @@
 # newurl
 新网址
-npyaiad.com
+npyaiac.com
