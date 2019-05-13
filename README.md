@@ -1,3 +1,3 @@
 # newurl
 新网址
-npyaiaj.com
+npy38.com
