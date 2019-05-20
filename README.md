@@ -1,3 +1,3 @@
 # newurl
 新网址
-5ggax.com
+5gggx.com
