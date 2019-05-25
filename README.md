@@ -1,3 +1,3 @@
 # newurl
 新网址
-5gggo.com
+5g5g0.com
