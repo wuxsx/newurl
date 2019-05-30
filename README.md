@@ -1,3 +1,3 @@
 # newurl
 新网址
-5goog.com
+5ge888.com
