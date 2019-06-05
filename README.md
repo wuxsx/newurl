@@ -1,3 +1,3 @@
 # newurl
 新网址
-5gy999.com
+5gx555.com
