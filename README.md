@@ -1,3 +1,3 @@
 # newurl
 新网址
-5go555.com
+5gl555.com
