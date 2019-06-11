@@ -1,3 +1,3 @@
 # newurl
 新网址
-5gk555.com
+5gj555.com
