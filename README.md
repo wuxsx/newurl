@@ -1,4 +1,4 @@
 # newurl
 新网址
-5g979.com
-5g898.com
+5g878.com
+5g559.com
