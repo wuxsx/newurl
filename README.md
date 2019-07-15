@@ -1,3 +1,3 @@
 # newurl
 新网址
-5gs9.com
+5gj5.com
