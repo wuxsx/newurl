@@ -1,3 +1,1 @@
-# newurl
-最新网址：
-https://5g007g.com/
+请移步至最新发布页 https://github.com/567haofeiji/yingyuan
